@@ -1,6 +1,6 @@
 #### Hi
 I'm Lakshya
-- ✏️A student
-- ❄️Learning
+- ✏️A student (high school)
+- ❄️Still Learning
 - 🎸Guitar Enthusiast
 - 🧑‍🍳Cook
